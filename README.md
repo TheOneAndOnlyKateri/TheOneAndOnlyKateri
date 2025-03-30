@@ -1,16 +1,20 @@
-## Hi there 
+![for kateri](https://github.com/user-attachments/assets/bd04b0fd-dc47-452d-8dab-20e3e5a72e06) 
 
-<!--
-**TheOneAndOnlyKateri/TheOneAndOnlyKateri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                              ୨⎯ ÐØ NØT USЄ GIŦTЄÐ βY A ŦRIЄNÐ ⎯୧
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+                                ╔════ ✿ ❀ ღღ ✿ ❀ ════╗
+                                     Sıмριє  ıηтєгα¢т
+                                 ೃ❤ Ðαηdγ Wσгιd Ŧαηs
+                                  ೃ❤   ŦPЄ Ŧαηs 
+                                   ೃ❤  CяK Ŧαηs
+                                
+                                ╚══════ ❀•°❀°•❀ ══════╝
+                                          ❤♥❤
+                                ╔════ ✿ ❀ ღღ ✿ ❀ ════╗
+                                       Sıмριє Ðηı 
+                                ೃ❤ βαsı¢ ÐNI Cгıтєгıα
+                                  ೃ❤ Tσxı¢ ÐW/CRK Ŧαηs
+                                    ೃ❤ Tσxı¢ Sнıρρєгs
+                                ╚══════ ❀•°❀°•❀ ══════╝
