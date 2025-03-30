@@ -1,7 +1,7 @@
-![for kateri](https://github.com/user-attachments/assets/bd04b0fd-dc47-452d-8dab-20e3e5a72e06) 
+
 
                               ୨⎯ ÐØ NØT USЄ GIŦTЄÐ βY A ŦRIЄNÐ ⎯୧
-
+![for kateri](https://github.com/user-attachments/assets/bd04b0fd-dc47-452d-8dab-20e3e5a72e06) 
 
 
                                 ╔════ ✿ ❀ ღღ ✿ ❀ ════╗
