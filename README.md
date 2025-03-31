@@ -1,7 +1,7 @@
 
 
                               ୨⎯ ÐØ NØT USЄ GIŦTЄÐ βY A ŦRIЄNÐ ⎯୧
- ![image](https://github.com/user-attachments/assets/9cc71cb7-66cf-4d56-9af1-f90c0e8061b8)
+  ![image](https://github.com/user-attachments/assets/9cc71cb7-66cf-4d56-9af1-f90c0e8061b8)
 
 
 
