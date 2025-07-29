@@ -1,9 +1,7 @@
 
 
                               ୨⎯ ÐØ NØT USЄ GIŦTЄÐ βY A ŦRIЄNÐ ⎯୧
- ![image]("https://github.com/user-attachments/assets/8cb0f036-2c30-4d2d-a303-72844a5ab219")
-
-
+[image]("https://github.com/user-attachments/assets/8cb0f036-2c30-4d2d-a303-72844a5ab219")
                                 ╔════ ✿ ❀ ღღ ✿ ❀ ════╗
                                      Sıмριє  ıηтєгα¢т
                                  ೃ❤ Ðαηdγ Wσгιd Ŧαηs
