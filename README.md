@@ -1,8 +1,8 @@
 
 
                               ୨⎯ ÐØ NØT USЄ GIŦTЄÐ βY A ŦRIЄNÐ ⎯୧
-  ![image](https://github.com/user-attachments/assets/ " Нмм... мαγвє I ¢συιd ıмρгσνє sσмє. ")
-
+  ![img width="736" height="736" alt="Untitled75" src="https://github.com/user-attachments/assets/f395623a-df04-494e-b6a7-a63366c39f69" />
+e]
 
 
                                 ╔════ ✿ ❀ ღღ ✿ ❀ ════╗
